@@ -23,3 +23,11 @@ Mission statement
 ## Response
 
 I think this museum is is more of museum display. This museum is curated and by Mexican/Mexican American artists to document and uphold their traditions and values. The culture of these people are very unique and prohibits outside groups from infiltrating this space. The status, culture and heritage are interwoven into the space and the curated pieces on display.
+
+## Museum Archive
+
+If I were to create a museum or archive of the things I owned it would have to be the Junk Drawer. Every house or living space always had a designated space where miscellaneous items are kept. These items are never documented or itemized. These drawers contain everyday objects, papers, mail, trinkets, change etc. I would make a museum documenting junk drawers from different people throughout the decades and eras across people around the world. These drawers can give you insight into the lives of people.
+
+![image of my junk](junk.jpg)
+
+![Iimageofmyjunk2](junk.jpg2)
