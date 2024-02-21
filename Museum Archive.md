@@ -30,4 +30,4 @@ If I were to create a museum or archive of the things I owned it would have to b
 
 ![imageofmyjunk](junk.jpg)
 
-![imageofmyjunk2](junk.jpg2.jpeg)
+![imageofmyjunk2](junk2.jpg)
